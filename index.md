@@ -5,5 +5,5 @@
 - My classmated are phenomenal
 - I am learning useful things to help me get a job/internship in the future
 
-![Image](src)
+![Image](https://images-na.ssl-images-amazon.com/images/I/31HxuJJyPYL._SX258_BO1,204,203,200_.jpg)
 
